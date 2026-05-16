@@ -12,7 +12,8 @@
 
 ## 👨‍💻 About Me
 
-🎨 Creative Designer specialized in:
+🎨 Creative Designer 
+
 
 - Real Estate Poster Designs
 
