@@ -44,16 +44,10 @@
 
 
 
-✨ Luxury Real Estate Branding    
-
-✨ Clean & Modern Layouts  
-
+✨ Luxury Real Estate poster     
 ✨ Dark Green + Gold Aesthetic  
-
 ✨ Instagram Ready 1080×1350 Creatives  
-
 ✨ WhatsApp Status 1080×1920 Designs
-
 ---
 
 ## 📂 Featured Projects
