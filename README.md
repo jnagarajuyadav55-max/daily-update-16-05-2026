@@ -1,6 +1,6 @@
 <h1 align="center">Hi 👋, I'm JN (Jnagaraju Yadav)</h1>
 
-<h3 align="center">Creative Designer • Real Estate Branding Expert • Canva & Adobe Express Designer • AI Content Creator</h3>
+<h3 align="center">Creative Designer • Real Estate poster  • Canva & Adobe Express </h3>
 
 <p align="center">
 
