@@ -37,7 +37,7 @@
 
 <img src="https://img.shields.io/badge/ChatGPT-10A37F?style=for-the-badge&logo=openai&logoColor=white"/>
 
-<img src="https://img.shields.io/badge/Real_Estate_Branding-0F3D2E?style=for-the-badge&logo=homeadvisor&logoColor=gold"/>
+
 
 <img src="https://img.shields.io/badge/Digital_Marketing-1E3A8A?style=for-the-badge&logo=googleads&logoColor=white"/>
 
