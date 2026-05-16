@@ -18,9 +18,6 @@
 - Real Estate Poster Designs
 
 - Instagram poster
-
-- Premium Branding Designs
-
 - AI Prompt Design using ChatGPT
 
 - Canva & Adobe Express Designs
