@@ -16,7 +16,7 @@
 
 - Real Estate Poster Designs
 
-- Instagram & WhatsApp Ads
+- Instagram poster
 
 - Premium Branding Designs
 
@@ -24,18 +24,7 @@
 
 - Canva & Adobe Express Designs
 
-- Social Media Marketing Creatives
-
-- YouTube Thumbnails & Reels
-
-- Digital Marketing Content
-
-📍 Based in India  
-
-📈 Focused on High-Converting Designs & Branding
-
----
-
+- YouTube Thumbnails in chat gpt 
 ## 🛠️ Skills & Tools
 
 <p align="left">
@@ -58,11 +47,9 @@
 
 ## 🎯 My Design Style
 
-✨ Premium Corporate Designs  
 
-✨ Luxury Real Estate Branding  
 
-✨ High-Converting Social Media Ads  
+✨ Luxury Real Estate Branding    
 
 ✨ Clean & Modern Layouts  
 
@@ -76,19 +63,16 @@
 
 ## 📂 Featured Projects
 
-### 🏡 Real Estate Marketing Designs
+### 🏡 Real Estate poster 
 
-- Premium Gated Community Posters
+- Premium Gated Community Posters design 
 
-- Farm House Plot Campaigns
-
-- Luxury Plot Branding
-
-- Real Estate Lead Generation Creatives
+- Farm House Plot
+- open plot design 
 
 ### 📱 Social Media Designs
 
-- Instagram Posts
+- Instagram Posters design
 
 - LinkedIn Banners
 
@@ -103,8 +87,6 @@
 - ChatGPT Content Creation
 
 - AI Image Prompt Designs
-
-- AI Marketing Creatives
 
 ---
 
